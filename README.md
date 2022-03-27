@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @4kxroppi
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning how to die
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me disc: 4kxroppionly#7994
